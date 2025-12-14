@@ -3,7 +3,7 @@
 
 **Author:** Vikas Gupta  
 **MSc Finance, Dublin City University**  
-**Email:** Vikas.gupta3@mail.dcu.ie  
+**Email:** Vikasgupta566@gmail.com  
 
 ---
 
